@@ -62,10 +62,7 @@ UCYTOFFICIAL
 
 📢 Support & Download 
 
-Join Telegram: h[ttps://t.me/+3hdwNFiTltg3NmNl
-
----
-](https://t.me/+ypDU6ivVFmk0Njk1)
+Join Telegram: (https://t.me/+ypDU6ivVFmk0Njk1)
 ⚠️ Disclaimer
 
 Use at your own risk. The developer is not responsible for any damage to your device.
